@@ -2,6 +2,4 @@
  
 dont steal lol
 
-or i'll cum in ur ass lmao
-
-
+or i'll ban you from existance lmao
